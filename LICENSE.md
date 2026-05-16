@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket algorithm with Polymarket secure Algorithm: multi-exchange-support & trailing-stops. Featuring multi-exchange-support and trailing-stops, it's the best
 
 
 
